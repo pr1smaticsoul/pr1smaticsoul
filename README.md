@@ -1,9 +1,14 @@
-♡. C+H freely ! <3 ,, int pls ^3^
 
-I am kind !;3 ,, so you better be grateful! cuz im nice to you! ^o^
+Ello guys ! ^w^ ,, ♡*+.
 
-I love me pooks ♡ . + friends ! >3<
+  c+h freely ! + int any ^ ^ . ♡
+  
+dnc my skins ! + Style plz ! . thank u ! ^-^
+
+   Friend request me if u want! ,, ★ i'd be appreciate that <3 .
+
+   i love my pookies n friendsies ! >3<
+
+  Im a kind and nice person !! ,, you should be grateful for that ! ^w^
 
 
-
-Soon gotta update !! hehe ><
