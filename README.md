@@ -1,12 +1,13 @@
+## . Ello Every1 !! >w< ,, ♡ *
 
-Ello guys ! ^w^ ,, ♡*+.
+C+H Any ! + int >-< . ♡ ( Dont be shy! just do it ! ówò )
 
-  c+h freely ! + int any ^ ^ . ♡
-  
-dnc my skins ! + Style plz ! . thank u ! ^-^
+× : DNC MY SKINS PLS ! + STYLE / COLOURS ! Ó-Ò
 
-   pls!! sign straw !
-   
-   i love my pookies n friendsies ! >3<
+Me Bisexual ! .' >0< ,, + Me boy !! ^_^
 
-  Im a kind and nice person !! ,, you should be grateful for that ! ^w^
+## My Sites ! >< . ♡ *
+
+; Pls go to my straw and draw smt for me and ask sum nice questions ! ;p
+
+; Soon editing/making ata + rentry ! ^3^ *
