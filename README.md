@@ -10,4 +10,4 @@ Me Bisexual ! .' >0< ,, + Me boy !! ^_^
 
 ; Pls go to my straw and draw smt for me and ask sum nice questions ! ;p
 
-; Soon editing/making ata + rentry ! ^3^ *
+                                ; Soon editing/making ata + rentry ! ^3^ *
