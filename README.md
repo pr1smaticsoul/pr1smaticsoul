@@ -10,9 +10,12 @@ Me Bisexual ! .' >0< ,, + Me boy !! ^_^
 
 ; Pls go to my straw and draw smt for me and ask sum nice questions ! ;p
 
-                ; Soon editing/making ata + rentry ! ^3^ *
+                ; Soon editing/making ata + rentry ! ^3^ !! . *
                 
-## Guys ! beware of this dumb ponytown skin stealer from pinterest ! D: ,, * :
+## Moot , Oomf , Pookies LIST ! ><
 
-![Screenshot_20250722-170953_Chrome](https://github.com/user-attachments/assets/05d2a8d4-8f12-4239-9600-a17ca853bda9)
-Shes stalking/seeing some cool ponytown skins ! , so be careful! we dont know what her skin looks like ! ^3^
+sukuxey , faxxie .- ok , pastrypip .- YOUR THE ONE WHOS A TOOTER .. ! , bandaged-wounds , pastrycaked .- bunpookie
+scratchrecord .- you look like my old style before .. , STARRFALL .- ATLEAST YOU GOT FLAGGED😂 , VelvetVides .- LOVE YAA
+starts-in-thesky , dososan .- love yaa , eatingmycomputer .- love yaa dude , namzpie .- STOP BEING THIRSTY TO SANJI !?
+misanthropism .- heh, i love cuddling w ya , asukitty , CREAMC00KIES , Copperrighttt .- wheres my reginald? , r4zzled 
+giz-chan .- STOP BEING THIRST TO BARTO EUGHHH , Outt4n4m3s
