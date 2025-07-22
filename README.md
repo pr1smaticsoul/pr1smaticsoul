@@ -14,8 +14,8 @@ Me Bisexual ! .' >0< ,, + Me boy !! ^_^
                 
 ## Moot , Oomf , Pookies LIST ! ><
 
-sukuxey , faxxie .- ok , pastrypip .- YOUR THE ONE WHOS A TOOTER .. ! , bandaged-wounds , pastrycaked .- bunpookie
-scratchrecord .- you look like my old style before .. , STARRFALL .- ATLEAST YOU GOT FLAGGED😂 , VelvetVides .- LOVE YAA
-starts-in-thesky , dososan .- love yaa , eatingmycomputer .- love yaa dude , namzpie .- STOP BEING THIRSTY TO SANJI !?
-misanthropism .- heh, i love cuddling w ya , asukitty , CREAMC00KIES , Copperrighttt .- wheres my reginald? , r4zzled 
+sukuxey , faxxie .- ok , pastrypip .- YOUR THE ONE WHOS A TOOTER .. ! , bandaged-wounds , pastrycaked .- bunpookie ,
+scratchrecord .- you look like my old style before .. , STARRFALL .- ATLEAST YOU GOT FLAGGED😂 , VelvetVides .- LOVE YAA ,
+starts-in-thesky , dososan .- love yaa , eatingmycomputer .- love yaa dude , namzpie .- STOP BEING THIRSTY TO SANJI !? ,
+misanthropism .- heh, i love cuddling w ya , asukitty , CREAMC00KIES , Copperrighttt .- wheres my reginald? , r4zzled ,
 giz-chan .- STOP BEING THIRST TO BARTO EUGHHH , Outt4n4m3s
