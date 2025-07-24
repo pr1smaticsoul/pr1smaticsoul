@@ -18,4 +18,4 @@ sukuxey , faxxie .- ok , pastrypip .- YOUR THE ONE WHOS A TOOTER .. ! , bandaged
 .- CANCELLED!,VelvetVides .- LOVE YAA ,
 starts-in-thesky , dososan .- love yaa , eatingmycomputer .- love yaa dude , namzpie .- STOP BEING THIRSTY TO SANJI !? ,
 misanthropism .- heh, i love cuddling w ya , asukitty , CREAMC00KIES , Copperrighttt .- wheres my reginald? , r4zzled ,
-giz-chan .- STOP BEING THIRST TO BARTO EUGHHH , Outt4n4m3s , starjelly .- giggles skibidi , rationex / BABY-SAJA .- skibidi soda pop ! >< , crushedheqrts.- CANCELLED !
+giz-chan .- STOP BEING THIRSTY TO BARTO EUGHHH , Outt4n4m3s , starjelly .- giggles skibidi , rationex / BABY-SAJA .- skibidi soda pop ! >< , crushedheqrts.- CANCELLED !
