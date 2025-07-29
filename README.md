@@ -14,7 +14,7 @@ Me Bisexual ! .' >0< ,, + Me boy !! ^_^
                 
 ## Moot , Oomf , Pookies LIST ! ><
 
-sukuxey , faxxie , pastrypip , bandaged-wounds , pastrycaked , scratchrecord , STARRFALL ,VelvetVides ,
+sukuxey , faxxie , GOLDSHIPP <3 . , pastrypip , bandaged-wounds , pastrycaked , scratchrecord , STARRFALL ,VelvetVides ,
 starts-in-thesky , dososan , eatingmycomputer , namzpie ,
 misanthropism , asukitty , CREAMC00KIES , Copperrighttt  , r4zzled ,
 giz-chan, Outt4n4m3s , starjelly .- giggles skibidi , rationex / BABY-SAJA , crushedheqrts , 
