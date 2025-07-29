@@ -14,8 +14,7 @@ Me Bisexual ! .' >0< ,, + Me boy !! ^_^
                 
 ## Moot , Oomf , Pookies LIST ! ><
 
-sukuxey , faxxie .- ok , pastrypip .- YOUR THE ONE WHOS A TOOTER .. ! , bandaged-wounds .- idk why u dont always looked at me.. :(( i always cud ya.. , pastrycaked .- bunpookie ,scratchrecord .- you look like my old style before .. , STARRFALL
-.- CANCELLED!,VelvetVides .- LOVE YAA ,
-starts-in-thesky , dososan .- love yaa , eatingmycomputer .- love yaa dude , namzpie .- STOP BEING THIRSTY TO SANJI !? ,
-misanthropism .- heh, i love cuddling w ya , asukitty , CREAMC00KIES , Copperrighttt .- wheres my reginald? , r4zzled ,
-giz-chan .- STOP BEING THIRSTY TO BARTO EUGHHH , Outt4n4m3s , starjelly .- giggles skibidi , rationex / BABY-SAJA .- skibidi soda pop ! >< , crushedheqrts.- CANCELLED !
+sukuxey , faxxie , pastrypip .- YOUR THE ONE WHOS A TOOTER .. ! , bandaged-wounds , pastrycaked , scratchrecord , STARRFALL ,VelvetVides ,
+starts-in-thesky , dososan , eatingmycomputer , namzpie ,
+misanthropism , asukitty , CREAMC00KIES , Copperrighttt  , r4zzled ,
+giz-chan, Outt4n4m3s , starjelly .- giggles skibidi , rationex / BABY-SAJA , crushedheqrts , 
