@@ -4,11 +4,13 @@ C+H Any ! + int >-< . ♡ ( Dont be shy! just do it ! )
 
 × : DNC MY SKINS PLS ! + STYLE / COLOURS / SHADES ! Ó-Ò
 
-Me Bisexual ! .' >0< ,, + Me boy !! ^_^
+Me Bisexual ! .' >0< ,, + Me boy <img width="20" height="20" alt="461405910-2df0bedc-c054-4fcd-9f5d-91a3e9a95c22" src="https://github.com/user-attachments/assets/9ec7409e-178c-414f-ab55-3c268e0f6ed2" />
+ ^_^
 
 ## My Sites ! . ♡ *
 
-; Pls go to my straw and draw smt for me and ask sum nice questions ! ;p
+; Pls go to my straw and draw smt for me and ask sum nice questions <img width="20" height="20" alt="461405910-2df0bedc-c054-4fcd-9f5d-91a3e9a95c22" src="https://github.com/user-attachments/assets/40f3274f-3680-4ad7-ba21-31c9677ba7a6" />
+  ;p
 
                 ; Soon editing/making ata + rentry ! ^3^ !! . *
                 
