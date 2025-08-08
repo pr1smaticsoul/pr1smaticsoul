@@ -20,3 +20,9 @@ sukuxey , faxxie , G0LDSHIPP <3 . , pastrypip , bandaged-wounds <3 congratss fro
 starts-in-thesky , dososan , eatingmycomputer , namzpie ,
 misanthropism , asukitty , CREAMC00KIES , Copperrighttt  , r4zzled ,
 giz-chan, Outt4n4m3s , starjelly <3 . , rationex / BABY-SAJA , crushedheqrts , 
+
+## INT AND DNI LIST ! ^ ^
+
+INT ! : Kind ppl ^^ , Fandom ! ( only if i know :3 ) ex : FNAF , Ninja GO ! , KPDH , PJSK , Bluey , JJK , MLBB , OP , Piggy , Block Tales , Regretevator , and more !
+
+DNI . : P3d0 , Rude + Disrespectful ppl .. , And more !
