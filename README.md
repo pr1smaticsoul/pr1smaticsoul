@@ -23,6 +23,6 @@ giz-chan, Outt4n4m3s , starjelly <3 . , rationex / BABY-SAJA , crushedheqrts ,
 
 ## INT AND DNI LIST ! ^ ^
 
-INT ! : Kind ppl ^^ , Fandom ! ( only if i know :3 ) ex : FNAF , Ninja GO ! , KPDH , PJSK , Bluey , JJK , MLBB , OP , Piggy , Block Tales , Regretevator , and more !
+INT ! : Kind ppl ^^ , Fandom ! ^0^ , Any !
 
 DNI . : P3d0 , Rude + Disrespectful ppl .. , And more !
