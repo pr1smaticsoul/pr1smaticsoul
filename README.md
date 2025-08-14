@@ -16,13 +16,8 @@ Me Bisexual ! .' >0< ,, + Me boy <img width="20" height="20" alt="461405910-2df0
                 
 ## Moot , Oomf , Pookies LIST ! ><
 
-sukuxey , faxxie , PIZZASTARB0Y <3 . , pastrypip , bandaged-wounds <3 congratss from pt award!! , pastrycaked , scratchrecord , STARRFALL <3 . ,VelvetVides ,
+sukuxey , faxxie , PIZZASTARB0Y <3 . , pastrypip , bandaged-wounds <3 , pastrycaked , scratchrecord , STARRFALL <3 . ,VelvetVides ,
 starts-in-thesky , dososan , eatingmycomputer , namzpie ,
-misanthropism , asukitty , CREAMC00KIES , Copperrighttt  , r4zzled ,
-giz-chan, Outt4n4m3s , starjelly <3 . , rationex / BABY-SAJA , crushedheqrts , 
+misanthropism <3 , asukitty , CREAMC00KIES , Copperrighttt <3 , r4zzled ,
+giz-chan, Outt4n4m3s , starjelly <3 . , rationex / BABY-SAJA , crushedheqrts <3 , 
 
-## INT AND DNI LIST ! ^ ^
-
-INT ! : Kind ppl ^^ , Fandom ! ^0^ , Any !
-
-DNI . : P3d0 , Rude + Disrespectful ppl .. , And more !
