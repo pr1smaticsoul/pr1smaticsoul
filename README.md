@@ -1,18 +1,8 @@
-## . Ello Every1 !! . ,, ♡ *
+<img width="1796" height="378" alt="Untitled617_20250816212158" src="https://github.com/user-attachments/assets/b1d70dfc-735c-4ab9-a320-6de4e66f385b" />
+<img width="1798" height="1798" alt="Untitled615_20250816211800" src="https://github.com/user-attachments/assets/9505eb32-f08d-473c-9bc7-b3a67961ac50" />
+<img width="1798" height="655" alt="Untitled617_20250816212324" src="https://github.com/user-attachments/assets/8a64c79e-94eb-4abf-b8dc-0e70e88e808d" />
 
-C+H Any ! + int >-< . ♡ ( Dont be shy! just do it ! )
 
-× : DNC MY SKINS PLS ! + STYLE / COLOURS / SHADES ! Ó-Ò
-
-Me Bisexual ! .' >0< ,, + Me boy <img width="20" height="20" alt="461405910-2df0bedc-c054-4fcd-9f5d-91a3e9a95c22" src="https://github.com/user-attachments/assets/9ec7409e-178c-414f-ab55-3c268e0f6ed2" />
- ^_^
-
-## My Sites ! . ♡ *
-
-; Pls go to my straw and draw smt for me and ask sum nice questions <img width="20" height="20" alt="461405910-2df0bedc-c054-4fcd-9f5d-91a3e9a95c22" src="https://github.com/user-attachments/assets/40f3274f-3680-4ad7-ba21-31c9677ba7a6" />
-  ;p
-
-                ; Soon editing/making ata + rentry ! ^3^ !! . *
                 
 ## Moot , Oomf , Pookies LIST ! ><
 
