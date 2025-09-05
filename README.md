@@ -1,5 +1,6 @@
+## NOTE ! : 🐾
 ◠ , DNC MY SKINS PLS ! i will expose you if you copied my skin.. /hvysrs ◡◠ ` . 🌱
-
+◠ Haii ! if i accidentally copied ur skin! plz remind / whisp me! cuz i didnt know abt it ! ^w^ . ☁️
 
 ## DNI LIST . ! ╮
 
