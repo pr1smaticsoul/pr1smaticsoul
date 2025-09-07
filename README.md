@@ -24,6 +24,8 @@ bandaged-wounds ◆ note: heya xen ! silly guy !! ^_^
 
 pastrycaked ◆ note: I WILL FIND THOSE COPYCATS !
 
+w3m1y0 ★ note: Hi brah
+
 scratchrecord ◆ note:
 
 SUGARYYSTARR ♥︎ note: CANCELLED ! AGAIN AND AGAIN ! laughs
