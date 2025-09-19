@@ -11,7 +11,7 @@ P3d0s . Age-Play . Rude People . Homophobic People . Racism People + more .. <im
                 
 ## . ╰╭ ` 𝓟𝓸𝓸𝓴𝓲𝓮𝓼 . 𝓜𝓸𝓸𝓽 . 𝓞𝓸𝓶𝓯 ! (≧▽≦) . *
 
-【 ★ 】 = Pookie ! ,, ` 【 ◆ 】= Moot ! ,, * 【 ♥︎ 】 = Oomf ! >w<
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ【 ★ 】 = Pookie ! ,, ` 【 ◆ 】= Moot ! ,, * 【 ♥︎ 】 = Oomf ! >w<
 
 sukuxey ★ = irl ! : <img width="50" height="50" alt="Untitled631_20250901074923" src="https://github.com/user-attachments/assets/819d6dcd-f225-468d-941b-566d84cb25a6" /> note: bro is NOT si-eun 🥀 .
 faxxie ★ = irl ! : <img width="50" height="50" alt="Untitled632_20250901074854" src="https://github.com/user-attachments/assets/c69ce69a-174a-48e2-82b0-aeedef6fda40" /> note: ok ok, ok. ok! ok?
