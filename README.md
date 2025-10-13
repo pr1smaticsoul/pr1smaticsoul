@@ -38,7 +38,7 @@ hynugew
 
 lwreroi
 
-scratchrecord note:
+scratchrecord
 
 SUGARYYSTARR
 
