@@ -4,4 +4,4 @@
 
 <img width="2105" height="1364" alt="Untitled671_20251021193458" src="https://github.com/user-attachments/assets/0613c97f-ae70-47e0-9842-ada46b6bb30b" />
 
-【 heh.. still updating + thinking harder ( " ^ u ^ ) 】
+【 heh.. still updating + thinking harder btw !! ( " ^ u ^ ) 】
