@@ -8,6 +8,6 @@
 
 <img width="1000" height="1000" alt="Untitled692_20251024200150" src="https://github.com/user-attachments/assets/5b6c8da0-f022-45f5-9261-313ab1dcf704" />
 
-
+Haiaiii big news, updating this on my bday ^w^ oct 29
 
 【 heh.. still updating + thinking harder btw !! ( " ^ u ^ ) 】
