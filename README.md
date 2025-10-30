@@ -1,4 +1,1 @@
-## 【 HI ! UPDATING ! COMING SOON ! ( ^ 3 ^ ) 🎉 】
-
-
-happy bday to meh !!
+## 【 HI ! UPDATING ! COMING SOON ! ( ^ 3 ^ ) 🎉 
