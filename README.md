@@ -1,1 +1,23 @@
-# Remaking this on 400 followers ( ^ w ^ ) .
+<div align="center">
+
+<img width="500" height="500" alt="Untitled774_20251119161106" src="https://github.com/user-attachments/assets/3aa895bb-48b6-4752-af83-110b0ba16878" />
+
+$\color{#e7ca47}{Time~ to~ get~ EPIC!~}$
+
+𓊆 𝚗𝚊𝚖𝚎 𝚌𝚊𝚕𝚕𝚒𝚗𝚐 : 𓊇 - 𓊆 ᴅᴀᴠɪ . ᴘʀɪꜱᴍ . ꜱᴏᴜʟ 𓊇
+
+𓊆 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎 : 𓊇 - 𓊆 ʟᴀᴢʏ ᴀʀᴛɪꜱᴛ . ʟᴏᴠᴇꜱ ᴅʀᴀᴡɪɴɢ . ꜱᴇɴꜱɪᴛɪᴠᴇ . ᴄᴀʀɪɴɢ ᴀɴᴅ ʟᴏᴠɪɴɢ 𓊇
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+<img width="500" height="500" alt="Untitled779_20251119202721" src="https://github.com/user-attachments/assets/85e1764f-2399-481a-a674-7b79c4a792aa" />
+
+
+$\color{#e83434}{俺~ は~ 海~ 賊~ 王~ に~ な~ る!~ }$
+
+𓊆 𝚌+𝚑 ! 𓊇 - 𓊆 ᴀʟᴡᴀʏꜱ ᴄ+ʜ ᴍᴇ ɪꜰ ʏᴏᴜ ꜰɪɴᴅ ᴍᴇ ᴀɴʏᴡʜᴇʀᴇ ᴏɴ ᴛʜᴇ ᴍᴀᴘ ! 𓊇
+
+𓊆 𝚋𝚖𝚏 ! 𓊇 - 𓊆 ɪ ʟɪᴋᴇ ᴍᴀᴋɪɴɢ ꜰʀɪᴇɴᴅꜱ ! ᴀʟꜱᴏ, ᴍʏ ꜰʀɪᴇɴᴅ ʀᴇQᴜᴇꜱᴛꜱ ᴀʀᴇ ᴏꜰꜰ. ʏᴏᴜ ᴍᴜꜱᴛ ᴡʜɪꜱᴘᴇʀ ᴍᴇ ꜰɪʀꜱᴛ ! 𓊇
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
+hhmmm i changed my mind heh
