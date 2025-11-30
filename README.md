@@ -18,7 +18,28 @@ $\color{#e83434}{俺~ は~ 海~ 賊~ 王~ に~ な~ る!~ }$
 
 𓊆 𝚋𝚖𝚏 ! 𓊇 - 𓊆 ɪ ʟɪᴋᴇ ᴍᴀᴋɪɴɢ ꜰʀɪᴇɴᴅꜱ ! ᴀʟꜱᴏ, ᴍʏ ꜰʀɪᴇɴᴅ ʀᴇQᴜᴇꜱᴛꜱ ᴀʀᴇ ᴏꜰꜰ. ʏᴏᴜ ᴍᴜꜱᴛ ᴡʜɪꜱᴘᴇʀ ᴍᴇ ꜰɪʀꜱᴛ ! 𓊇
 
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-coming more soon! ( ^ w ^ )
+<details>
+<summary>𓊆 𝙵𝚛𝚒𝚎𝚗𝚍𝚜 ! 𓊇</summary>
+
+[LocalScientist](https://github.com/LocalScientist) ᴍᴡᴀ ! ᴍʏ ʙᴇʟᴏᴠᴇᴅ ʙꜰꜰ ! (˶˃⤙˂˶)
+
+[Trickzterrr](https://github.com/Trickzterr)
+
+[H4zelEyes](https://github.com/H4zelEyes)
+
+[sukuxey](https://github.com/sukuxey) ᴡʜᴀᴛꜱ ᴜᴘ ᴍʏ ʙʀᴏ ʙʀᴏ
+
+[LAMANCHACHERO](https://github.com/LAMANCHACHERO) ᴛʜᴇ ʙᴇꜱᴛ ᴀʀᴛɪꜱᴛ ! ( > ᴗ < )
+
+[ethereal-fatality](https://github.com/ethereal-fatality) ʜɪ ꜱɪʟʟʏ !!
+
+[sugarbuny](https://github.com/sugarbuny)
+
+[BeeLzebubBee](https://github.com/BeeLzebubBee)
+
+[DreamyStarr](https://github.com/DreamyStarr) ʜɪ ꜰᴀᴛᴛɪᴇ !! ( •̀ ᗜ •́ )
 
 
+
+
+coming more soon lalalala
