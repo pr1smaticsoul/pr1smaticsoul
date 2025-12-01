@@ -39,7 +39,9 @@ $\color{#e83434}{俺~ は~ 海~ 賊~ 王~ に~ な~ る!~ }$
 
 [DreamyStarr](https://github.com/DreamyStarr) ʜɪ ꜰᴀᴛᴛɪᴇ !! ( •̀ ᗜ •́ )
 
+[Copperrighttt](https://github.com/Copperrighttt)
 
+</details>
 
 
 coming more soon lalalala
