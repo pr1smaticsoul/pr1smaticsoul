@@ -29,7 +29,7 @@ $\color{#e83434}{俺~ は~ 海~ 賊~ 王~ に~ な~ る!~ }$
 
 [sukuxey](https://github.com/sukuxey) ᴡʜᴀᴛꜱ ᴜᴘ ᴍʏ ʙʀᴏ ʙʀᴏ
 
-[LAMANCHACHERO](https://github.com/LAMANCHACHERO) ᴛʜᴇ ʙᴇꜱᴛ ᴀʀᴛɪꜱᴛ ! ( > ᴗ < )
+[LAMANCHAHERO](https://github.com/LAMANCHAHERO) ᴛʜᴇ ʙᴇꜱᴛ ᴀʀᴛɪꜱᴛ ! ( > ᴗ < )
 
 [ethereal-fatality](https://github.com/ethereal-fatality) ʜɪ ꜱɪʟʟʏ !!
 
