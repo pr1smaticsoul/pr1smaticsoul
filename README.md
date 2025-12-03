@@ -1,8 +1,5 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=pr1smaticsoul) 
-
-
 <div align="center">
-
+  
 <img width="500" height="500" alt="Untitled774_20251119161106" src="https://github.com/user-attachments/assets/3aa895bb-48b6-4752-af83-110b0ba16878" />
 
 $\color{#e7ca47}{Time~ to~ get~ EPIC!~}$
@@ -46,5 +43,6 @@ $\color{#e83434}{俺~ は~ 海~ 賊~ 王~ に~ な~ る!~ }$
 
 </details>
 
+![](https://komarev.com/ghpvc/?username=pr1smaticsoul&color=red&style=plastic&label=𓏲ּ𝄢)
 
 coming more soon lalalala
