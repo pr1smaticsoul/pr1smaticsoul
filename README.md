@@ -29,6 +29,8 @@ $\color{#e83434}{俺~ は~ 海~ 賊~ 王~ に~ な~ る!~ }$
 
 [sukuxey](https://github.com/sukuxey) ᴡʜᴀᴛꜱ ᴜᴘ ᴍʏ ʙʀᴏ ʙʀᴏ
 
+[faxxie](https://github.com/faxxie) ꜱɴᴇᴇᴢᴇ ᴍᴇ ᴀʟᴡᴀʏꜱ ɪᴅᴄ ( ˙𐃷˙ )
+
 [LAMANCHAHERO](https://github.com/LAMANCHAHERO) ᴛʜᴇ ʙᴇꜱᴛ ᴀʀᴛɪꜱᴛ ! ( > ᴗ < )
 
 [ethereal-fatality](https://github.com/ethereal-fatality) ʜɪ ꜱɪʟʟʏ !!
