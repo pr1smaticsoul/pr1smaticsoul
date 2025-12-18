@@ -48,3 +48,5 @@ $\color{#e83434}{俺~ は~ 海~ 賊~ 王~ に~ な~ る!~ }$
 ![](https://komarev.com/ghpvc/?username=pr1smaticsoul&color=red&style=plastic&label=𓏲ּ𝄢)
 
 coming more soon lalalala
+
+also uh my atabook is wip so you can still sign my ata ! ^_^
