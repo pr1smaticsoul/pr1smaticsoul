@@ -1,4 +1,4 @@
-uhhhhhh.... imma remake ts cuz its kinda ugly.. and old too! soo... wip..
+uhhhhhh.... imma remake ts cuz its kinda ugly.. and old too! soo... wip.. also im keeping this daily expose heh
 
 ![](https://komarev.com/ghpvc/?username=pr1smaticsoul&color=blue&style=plastic&label=𓏲ּ𝄢)
 
