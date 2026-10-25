@@ -1,7 +1,11 @@
 <div align="center">
 
-me and my wife btw
+Im cool trust, pls int and always c+h me
 
-<img width="1895" height="1814" alt="Untitled1228_20260818202723" src="https://github.com/user-attachments/assets/1896a4b6-2995-42e9-9f14-51aa3093020e" />
+I fictkin Adam and Isaac Night !
 
+<img width="736" height="484" alt="adam" src="https://github.com/user-attachments/assets/10d8f410-7fdc-49a3-8dca-4d726692030d" />
 
+creds to dondoko_00
+
+fun fact: I love my wife
