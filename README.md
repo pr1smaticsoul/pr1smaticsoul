@@ -10,4 +10,5 @@ creds to dondoko_00
 
 fun fact: I love my wife
 
-<img width="396" height="224" alt="dlnsg3h-1814c07e-f5d2-4419-87e9-73a4ba6b12e3" src="https://github.com/user-attachments/assets/00a4ae9f-b98d-4a37-80e5-a9aaddc9ba06" />
+<img width="56" height="18" alt="adam-imvu-button" src="https://github.com/user-attachments/assets/1eddcef9-2ddf-4f04-b1e9-c6b5b4ee4453" />
+
